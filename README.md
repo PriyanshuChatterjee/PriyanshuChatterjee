@@ -11,7 +11,7 @@
 - 👯 I’m looking to contribute more on open source projects
 - 💬 Ask me about the fields in which I am interested😊
 - 🥅 **2021 Goals:** To contribute more and learn more
-- 💖 **My Hobby** : Writing Blogs and clicking awesome photos.
+- 💖 **My Hobby** : Writing Blogs, clicking awesome photos and Driving.
 - ⚡ **Fun fact:** I am a part time blogger and I write blogs about Tech 
 - ⚡ Co-Founder of TechDevs organisation
 - ⚡ Co-Founder of photomaniac.in
